@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **m.alialaawar@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1PNIV3Flu6GBIphBlH-fqc6wEtTLSRB6g/edit?usp=sharing&ouid=111633383070505338775&rtpof=true&sd=true](https://docs.google.com/document/d/1PNIV3Flu6GBIphBlH-fqc6wEtTLSRB6g/edit?usp=sharing&ouid=111633383070505338775&rtpof=true&sd=true)
+- 📄 Know about my experiences [CV](https://docs.google.com/document/d/1PNIV3Flu6GBIphBlH-fqc6wEtTLSRB6g/edit?usp=sharing&ouid=111633383070505338775&rtpof=true&sd=true)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
